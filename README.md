@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Jakefatha
-- 👀 I’m a cyber personnale.
+- 👀 I’m a cyber security personnale.
 - 🌱 I’m currently showing you how easy is for someone to have your account.
 - 💞️ I’m looking to collaborate with you.
 
